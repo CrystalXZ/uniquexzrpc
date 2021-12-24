@@ -1,2 +1,2 @@
 # uniquexzrpc
-https://nolur.com
+https://uniquexz.xyz
